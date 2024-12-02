@@ -35,10 +35,12 @@ cdozdil
 FakeMichau
 
 امیدوارم این برنامه براتون مفید باشه
+![photo_2024-12-02_13-20-58](https://github.com/user-attachments/assets/84411770-ce74-42bc-a8d2-c986f5b7b948)
 
 ![3](https://github.com/user-attachments/assets/d739b865-b601-4d8f-9df3-c96b26eb53fb)
-![2](https://github.com/user-attachments/assets/f9089cb7-8204-4663-97db-bbadae3c6f4e)
-![1](https://github.com/user-attachments/assets/520cd667-26a4-4e6e-bbed-71f8d9261234)
+![photo_2024-12-02_13-21-17](https://github.com/user-attachments/assets/78368645-8f54-4f36-8f2f-237df76dfe0a)
+![photo_2024-12-02_13-21-25](https://github.com/user-attachments/assets/fadd547c-3305-46be-aa05-ebf31349bed2)
+![photo_2024-12-02_13-21-22](https://github.com/user-attachments/assets/a7305080-b8e1-46a4-b1a6-27f327230293)
 ![Senua’s Saga Hellblade II_2024 11 24-18 05_1](https://github.com/user-attachments/assets/94544d23-903c-42b0-887f-78b9ab4b8f8b)
 ![Senua’s Saga Hellblade II_2024 11 24-18 06](https://github.com/user-attachments/assets/b1c9a06b-eedf-46c4-9138-a528209ddb3a)
 
